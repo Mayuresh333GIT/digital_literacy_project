@@ -1,24 +1,24 @@
 Do’s 
 
-•	Think before posting
+1.	Think before posting
 
-•	Protect your privacy 
+2.	Protect your privacy 
 
-•	Verify information before sharing 
+3.	Verify information before sharing 
 
-•	Maintain a professional online image 
+4.	Maintain a professional online image 
 
-•	Respect others’ opinions and identities 
+5.	Respect others’ opinions and identities 
 
 Don’ts 
 
-•	Do not share sensitive personal information 
+1.	Do not share sensitive personal information 
 
-•	Do not post offensive, abusive, or discriminatory content
+2.	Do not post offensive, abusive, or discriminatory content
 
-•	Avoid oversharing personal problems or private matters publicly. 
+3.	Avoid oversharing personal problems or private matters publicly. 
 
-•	Do not spread rumors or unverified news. 
+4.	Do not spread rumors or unverified news. 
 
-•	Avoid spending excessive time on social media 
+5.	Avoid spending excessive time on social media 
 
